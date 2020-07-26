@@ -1,2 +1,1 @@
 # NullSquad
-RZT
