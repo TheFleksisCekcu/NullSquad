@@ -1,1 +1,1 @@
-# Мать ебал!
+#https://discord.gg/ZFrjGwA
