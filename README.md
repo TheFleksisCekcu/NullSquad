@@ -1,1 +1,2 @@
-#https://discord.gg/ZFrjGwA
+#NullSquad
+https://discord.gg/ZFrjGwA
