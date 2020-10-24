@@ -1,2 +1,2 @@
 #NullSquad
-https://discord.gg/ZFrjGwA
+u fat gei
