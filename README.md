@@ -1,2 +1,1 @@
-#NullSquad
 u fat gei
